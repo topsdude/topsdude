@@ -11,6 +11,4 @@ Past Quality Assuarance experience:
 - 213 District - Quality Assurance lead (San Bernadino & Frazier Park Roblox)
 - Altered Studios - QA Tester (Lucid Dreams, Click a Duck, Explosive Delivery Service all out on steam)
 
-You can contact me at:
--My Email topsdude12staffemail@gmail.com
--My Discord _tophats
+You can contact me at my Email topsdude12staffemail@gmail.com or my Discord _tophats
