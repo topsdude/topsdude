@@ -12,6 +12,5 @@ Past Quality Assuarance experience:
 - Altered Studios - QA Tester (Lucid Dreams, Click a Duck, Explosive Delivery Service all out on steam)
 
 You can contact me at:
-My Email topsdude12staffemail@gmail.com
-or
-My Discord _tophats
+-My Email topsdude12staffemail@gmail.com
+-My Discord _tophats
